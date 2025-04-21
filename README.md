@@ -9,4 +9,5 @@
 
 **Conntacts** 
 
-Gmail - richards.grava@gmail.com (official)
+[Instagram]([your-link](https://www.instagram.com/rik_gra?igsh=ZGF6aTRsZjM4anVr&utm_source=qr)) | [X](y[our-link](https://x.com/RGra81052544))  
+
