@@ -1,7 +1,8 @@
 # Hi, I’m Richard  
 
 ### Skills & Tools  
-- HTML, CSS 
+- HTML, CSS
+- 
 -learning C++
 
 
