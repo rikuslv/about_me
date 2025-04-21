@@ -2,8 +2,7 @@
 
 ### Skills & Tools  
 - HTML, CSS
-- 
--learning C++
+- learning C++
 
 
 ---  
