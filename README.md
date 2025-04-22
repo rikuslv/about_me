@@ -1,8 +1,8 @@
 # Hi, I’m rikuslv  
 
-### Skills & Tools  
+### Skills   
 - HTML, CSS
-- Learning C++
+- Currently Learning C++
 
 
 ---  
